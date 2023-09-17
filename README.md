@@ -1,1 +1,1 @@
-# 42SP_UNNOFICIAL_press_kit
+# 42SP_UNNOFICIAL_covers
